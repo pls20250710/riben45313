@@ -18,4 +18,4 @@ SEO策略方面，平台通过关键词优化、内容标签精准分类、以�
 
 未来，成人视频行业将继续围绕内容创新与技术提升，致力于为用户提供更丰富、更安全、更便捷的观看体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/pls20250710/riben45313 ）</span>
